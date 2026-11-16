@@ -1,1 +1,1 @@
-Prework content for Sigma Labs challenge 3 & Level 3
+Prework content for Sigma Labs Level 3
